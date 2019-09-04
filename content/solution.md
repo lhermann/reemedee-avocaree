@@ -1,0 +1,1 @@
+Avocaree möchte deiner empfindlichen Haut den Neuanfang schenken. Sie ist dafür entwickelt worden, um die optimale Nährstoffversorgung für deine Haut zu gewährleisten. Dabei verwenden wir ausschließlich  hochqualitative und vegane Rohstoffe aus der Natur. Uns ist wichtig, dass sie sowohl deiner Gesundheit, als auch unserem Planeten nachhaltig nutzt.
